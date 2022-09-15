@@ -1,3 +1,1 @@
-# Работа в команде
-
-fgfgfgfdgfdg
+# gggfgfg
